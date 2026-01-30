@@ -1,1 +1,0 @@
-# turistico33a0jv
